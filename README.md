@@ -1,3 +1,3 @@
-# www.soaringeaglee.tk
+# soaringeaglee.tk
 https://www.soaringeaglee.tk
 
